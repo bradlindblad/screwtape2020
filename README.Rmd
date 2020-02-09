@@ -61,5 +61,5 @@ data.frame('Final Word Count' = sum(final$Word_Count)) %>% knitr::kable()
 
 
 ## Read it
-[Latest Build](book/book.html)
+[Latest Build](book/final_book.html)
 

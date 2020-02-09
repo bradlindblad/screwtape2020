@@ -23,4 +23,4 @@ Statistics
 Read it
 -------
 
-[Latest Build](book/book.html)
+[Latest Build](book/final_book.html)
