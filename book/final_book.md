@@ -36,7 +36,7 @@ February 09, 2020
 1
 =
 
-this is one Ok nw we're really rolling.
+this is one Ok nw we're really rolling. Are we there yet?
 
 2
 =

@@ -26,9 +26,9 @@ Statistics
 | Chapter         |  Word\_Count|
 |:----------------|------------:|
 | 0.5\_Preface.md |          301|
-| 1.md            |           10|
+| 1.md            |           14|
 | 2.md            |           10|
 
 |  Final.Word.Count|
 |-----------------:|
-|               321|
+|               325|
