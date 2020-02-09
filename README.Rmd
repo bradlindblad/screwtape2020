@@ -21,6 +21,17 @@ Repo for Screwtape2020 (working title) book
 ```{r include=FALSE}
 library(tidyverse)
 ```
+# The Book
+
+## Build it
+
+```
+./build
+```
+
+## Read it
+[Latest Build](book/final_book.md)
+
 
 ## Statistics
 
@@ -60,6 +71,4 @@ data.frame('Final Word Count' = sum(final$Word_Count)) %>% knitr::kable()
 ```
 
 
-## Read it
-[Latest Build](book/final_book.html)
 

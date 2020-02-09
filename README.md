@@ -7,6 +7,19 @@ screwtape2020
 <!-- badges: end -->
 Repo for Screwtape2020 (working title) book
 
+The Book
+========
+
+Build it
+--------
+
+    ./build
+
+Read it
+-------
+
+[Latest Build](book/final_book.md)
+
 Statistics
 ----------
 
@@ -19,8 +32,3 @@ Statistics
 |  Final.Word.Count|
 |-----------------:|
 |               316|
-
-Read it
--------
-
-[Latest Build](book/final_book.html)
