@@ -1,0 +1,64 @@
+---
+output: github_document
+---
+
+<!-- README.md is generated from README.Rmd. Please edit that file -->
+
+```{r echo=FALSE, message=FALSE, warning=FALSE}
+knitr::opts_chunk$set(
+  collapse = TRUE,
+  comment = "#>"
+)
+```
+
+# screwtape2020
+
+<!-- badges: start -->
+<!-- badges: end -->
+
+
+Repo for Screwtape2020 (working title) book
+```{r include=FALSE}
+library(tidyverse)
+```
+
+## Statistics
+
+```{r include=FALSE}
+getCount <- function(chapter) {
+  
+  text <- scan(paste0("src/",chapter), quote=NULL, what="x")
+  result <- length(text)
+  return(result)
+  
+}
+```
+
+
+```{r include=FALSE}
+getCount("0.5_Preface.md")
+```
+
+
+```{r echo=FALSE}
+chapters <- dir("src") 
+chapters <- as.data.frame(chapters)
+
+final <- chapters %>%
+  dplyr::rowwise() %>% 
+  dplyr::mutate(Word_Count = getCount(chapters)) %>% 
+  dplyr::rename(Chapter = chapters)
+ 
+
+final %>% knitr::kable()
+
+
+
+```
+```{r echo=FALSE}
+data.frame('Final Word Count' = sum(final$Word_Count)) %>% knitr::kable()
+```
+
+
+
+
