@@ -11,7 +11,7 @@ knitr::opts_chunk$set(
 )
 ```
 
-# screwtape2020
+# SCREWTAPE2020
 
 <!-- badges: start -->
 <!-- badges: end -->

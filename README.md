@@ -1,6 +1,6 @@
 
 <!-- README.md is generated from README.Rmd. Please edit that file -->
-screwtape2020
+SCREWTAPE2020
 =============
 
 <!-- badges: start -->
