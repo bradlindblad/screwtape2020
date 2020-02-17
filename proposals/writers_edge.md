@@ -32,19 +32,21 @@ blurb in the second box should be about 50-75 words. This box is intended to bri
 we ask you to give us a synopsis of your entire fiction story (i.e. plot, spiritual take-away, character arc, how conflict is resolved, how it ends, etc.). For a sample of what we’d like to see,
 
 
-(Working Title: Watercolor Summer)
-Kathleen waits in an airport for her flight when she sees a magazine cover that reads,
-“ONE MOMENT IN TIME: WHAT IF YOU COULD RELIVE IT?”
-This starts Kathleen remembering the summer she turned 13 and how that summer changed her life forever:
-As the only child of a southern aristocratic father and a bohemian artist mother, Kat feels out-of-place no matter where she is; even in her own family. Her parents’ differences in background, values and interests seem to always put Kat in the middle of a veiled conflict. In her world, everyone appears to have self-serving motives. As a result, Kat becomes angry and withdrawn.
-In her thirteenth summer, 1969, Kat is dragged by her mother to yet another artist colony on the beaches of Northwest Florida. There, her feelings of isolation and hopelessness unleash into a selfish rage. Self-pity overwhelms her and she contemplates every escape, including suicide.
-Malcolm, a mentally challenged boy, who is living at the artist colony in Florida, tries to befriend Kat, but Malcolm’s very presence annoys her to her core. Malcolm’s caretaker, Jeanette, a simple, but lov-ing woman who runs the artist colony, becomes the bane of Kat’s existence, peppering seemingly every moment with ridiculous country wisdom and humor.
-As the summer progresses, Kat finds out that Malcolm’s parents had abandoned him at the colony when he was five years old. This tugs at Kat’s heart a little, but her guard goes back up when it be-comes more and more likely that her parents are going to end their marriage.
-At summer’s end, Malcolm becomes ill. It is revealed that Malcolm has a congenital heart defect that must be repaired if he is to live. Just before he is to leave for New Orleans’ Oschner’s Clinic, a storm at sea begins to brew and his surgery is in question. One afternoon, Kat goes for a swim in the gulf and gets caught in the undertow. Malcolm had been following Kat and tries to rescue her. Rescue comes for both Kat and Malcolm, but Malcolm’s weak heart is made weaker by his struggle in the water.
-Malcolm is taken to the local hospital where he is in critical condition. Meanwhile, Hurricane Camille is fast approaching the Gulf Coast. Kat, Jeanette, Mary Alice, Chandler remain at the hospital to keep a vigil and to wait out the storm. Malcolm’s heart, however, is too weak. Sadly, he dies.
-At Malcolm’s funeral, Kat sees a woman who she suspects is Malcolm’s biological mother. When Kat voices her suspicions to her mother, Chan tells her daughter that she also believes this was Malcolm’s mother. Mary Alice Spaulding fills in the details of the back-story on Malcolm and his abandonment at the colony. She had been in contact with Vera, Malcolm’s mother for several years. Vera, who was finally free from an abusive husband, moved back near the colony so that she could keep watch over her son from a distance. What seemed at first to be a mother’s selfish act, begins to look more like an act of mercy.
-As Kathleen and her mother leave the colony at the end of the summer, Kathleen begins to see how her life is starting to make more sense.
-The Epilogue is Kathleen on the flight she was about to catch during the Prologue. She reflects on how the “stains” of her life, like watercolor on paper, have come together to paint a beautiful scene that only God could have anticipated and ordained.
+(Working Title: Screwtape 2020)
+
+Mugwort is the cousin of the now-deceased tempter Wormwood. Mugwort grew up hearing of his cousin's untimely demise due to subpar devilling, and he's determined to win the soul of the equally young human he's just been assigned by Corporate.
+
+Fortunately, Chief Technical Officer Screwtape is willing to assist Mugwort in his quest, which we find in this series of interoffice emails. The world has changed drastically in the last 80 years, and the Underworld has made leaps and bounds in the fields of distraction, entertainment and idolatry, which *should* make Mugwort's job a little easier. 
+
+The patient assigned to Mugwort is an American man in his early 20's, brought up in the Church and still in the Enemy's protection. Screwtape advises Mugwort to immediately begin a distraction campaign complete with mind-numbing screen time, social media and other pointless distractions. Not only does this occupy prime real estate in the patient's mind, but it also destroys his attention span and ability or desire to pray, effectively cutting of communications with the Enemy.
+
+With the elements of distraction firmly in place, the devils begin to work on cutting the patient's ties to his church, which is a ever-present threat to their work. The opportunity arises to visit a friend's church, which happily preaches a watered-down gospel to the delight of Screwtape. They urge the patient to pay close attention to his feelings during and after the service. This way, the patient's primary focus is on how he *feels*, and not worship.
+
+The effects of the distractions begin to have a pleasant side-effect: the patient begins to experience anxiety, primarily from social media and the news cycle. Screwtape explains to Mugwort how the media system has advanced in recent years from a once reliable and useful channel of relevant news and entertainment, to a fear and anxiety-inducing terror-delivery mechanism with the sole purpose of leaving humans ina constant state of apprehension. Subsequent emails from Screwtape showcase various methods Mugwort can use to exploit this asset to the fullest.
+
+In his anxious state, the patient is diagnosed with a dangerous disease. We arent'y told explicitly, but gather that it's either cancer or an autoimmune disease. This excites the naive tempter, but the more experienced Screwtape makes it clear that the patient's ill health may hurt their cause more than help it, as serious earthly pains often bring the humans closer to the Enemy.
+
+In an effort to capitalize on the illness and pull the patient down further, Screwtape advises to employ various new age healing remedies to assist with the patient's pain and anxiety, including meditation, yoga, hypnosis and others. The sickness goes into remission and life goes back to normal for the patient, until a chance meeting with a stranger who makes a Christ-like sacrifice for him, sealing his heart in Grace. A sudden complication from the illness then forever places the patient in the Enemy's arms, sealing Mugwort's fate forever.
 
 ## 3 sample chapters
 
