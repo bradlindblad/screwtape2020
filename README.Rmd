@@ -46,9 +46,6 @@ getCount <- function(chapter) {
 ```
 
 
-```{r include=FALSE}
-getCount("0.5_Preface.md")
-```
 
 
 ```{r echo=FALSE}
@@ -61,11 +58,27 @@ final <- chapters %>%
   dplyr::rename(Chapter = chapters)
  
 
-final %>% knitr::kable()
-
 
 
 ```
+
+```{r include=FALSE}
+# Get draft status
+source("draft_status.R")
+
+final$Draft <- drafts
+
+```
+
+
+```{r echo=FALSE}
+
+# Show final table
+final %>% knitr::kable()
+
+```
+
+
 ```{r echo=FALSE}
 data.frame('Final Word Count' = sum(final$Word_Count)) %>% knitr::kable()
 ```
