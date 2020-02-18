@@ -1,3 +1,7 @@
+-   [Preface](#preface)
+-   [Chapter 1](#chapter-1)
+-   [Chapter 2](#chapter-2)
+
 Preface
 =======
 
@@ -33,13 +37,13 @@ just be another way that the Enemy makes his presence known to us.
 B.H. Lindblad\
 February 09, 2020
 
-1
-=
+Chapter 1
+=========
 
 this is one Ok nw we're really rolling. Are we there yet?
 
-2
-=
+Chapter 2
+=========
 
 this is two two two two two two
 

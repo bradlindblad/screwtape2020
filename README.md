@@ -26,9 +26,9 @@ Statistics
 | Chapter         |  Word\_Count| Draft       |
 |:----------------|------------:|:------------|
 | 0.5\_Preface.md |          301| first       |
-| 1.md            |           14| first       |
-| 2.md            |           13| not started |
+| 1.md            |           15| first       |
+| 2.md            |           14| not started |
 
 |  Final.Word.Count|
 |-----------------:|
-|               328|
+|               330|
