@@ -23,12 +23,11 @@ Read it
 Statistics
 ----------
 
-| Chapter         |  Word\_Count| Draft       |
-|:----------------|------------:|:------------|
-| 0.5\_Preface.md |          301| first       |
-| 1.md            |           15| first       |
-| 2.md            |           14| not started |
+| Chapter         |  Word\_Count| Draft  |
+|:----------------|------------:|:-------|
+| 0.5\_Preface.md |          334| second |
+| 1.md            |          806| first  |
 
 |  Final.Word.Count|
 |-----------------:|
-|               330|
+|              1140|
