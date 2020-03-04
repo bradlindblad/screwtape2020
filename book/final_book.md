@@ -1,5 +1,7 @@
 -   [Preface](#preface)
 -   [Chapter 1](#chapter-1)
+-   [Chapter 2](#chapter-2)
+-   [Chapter 5](#chapter-5)
 
 Preface
 =======
@@ -126,4 +128,155 @@ becomes almost too easy.
 
 I'll see you at the pot luck next week.
 
-Screwtape | Executive Tempter Hell.org
+Screwtape | Executive Tempter\
+Hell.org
+
+Chapter 2
+=========
+
+FROM: Screwtape \[mailto: screwball@hell.org\]\
+TO: Mugwort `<muggy_as@hell.org>`\
+SUBJECT: RE:RE: New Patient Alert
+
+Mugwort,
+
+Your report on the patients screen time is encouraging. There is the one
+case where these humans knowingly waste their time watching silly cat
+videos, football games, and other trivial track. But your patient has
+fairly deceived himself with juicy justifications for the hours he
+spends on his phone, rather than with his family or communing with the
+Enemy. Your patient believes that his screen time is *better* than the
+screen time of his friends because he is consulting his fitness tracking
+apps to create better health for himself, and he is reading scholarly
+articles in his spare time on his phone to further his career, which in
+turn helps him support his family.
+
+You see mugwort, these rationalizations that the humans are so fond of
+are among the silliest behaviors our enemy puts up with. Whether your
+patient detaches himself from his family due to a seemingly positive
+distraction rather than an Inane distraction, The point is that he is
+distracted.
+
+A secondary benefit of the patients constant smart phone research is the
+gradual breakdown of his own reason. Instead of logically thinking from
+first principles, the patient read articles written by people that have
+regurgitated ideas written by people that have heard ideas from our
+souls in our university systems. It really is a game of telephone Afton
+originating from our very own talking points.
+
+All of this is to say that you must create an inseparable bond between
+the patient and his phone and any other similar devices.
+
+I’m very pleased to hear your description of the flaccid church he’s
+been attending lately.One of our boys has been working on that churches
+lead pastor for more than a decade, And it’s evident that he’s had a
+breakthrough. one way we measure this is by Counting the times a pastor
+
+This, my friend, is how we do it. We go over there, and get it.
+
+Screwtape | Executive Tempter\
+Hell.org
+
+Chapter 5
+=========
+
+FROM: Screwtape \[mailto: screwball@hell.org\]\
+TO: Mugwort `<muggy_as@hell.org>`\
+SUBJECT: Something for you to try...
+
+Dear Mugwort,
+
+I see that you've been able to keep your human in a state of despair for
+some time now. Excellent! I'm proud of you. In fact, I brought you up in
+a meeting at corporate last week. We were discussing additions to our
+young professionals networking program, and I touted you, Mugwort, as a
+worthy addition to the group. It's a great program for building your
+career -- and a fast track to an lower management role. Would you rather
+spend eternity whispering, suggesting, begging these filthy creatures to
+sink down into our miry pit, or would you rather call the shots at
+corporate with me? strategizing and building the future of the
+Underworld? Down here, my scaly apprentice, the muck is always blacker.
+
+Now I've come across some research that points to more opportunities
+opening up for us on earth. One of our greatest ancillary weapons since
+VG Day (Victory in the Garden) has been *pharmakeia*, the cutting of
+roots -- drugs as the humans say. Recently, the humans have went from
+demonizing (ha) psychedelics -- our most useful drug -- to praising it;
+even referring to it as *medicine*.
+
+You see, ever since the second great war, science has been largely
+compromised on earth. As soon as the military funnelled untold millions
+into the university system to support the war, science was no longer
+Newton, or Pastuer, or Pascal, it was bought -- a commodity if you will.
+Science had a taste of the wine, the sturporous drunkenness, and her
+eyes were filled with purple and scarlet.
+
+As such, we've been able to bribe the researchers and scientists to find
+some positive uses for these drugs to treat certain ailments, like
+anxiety and depression. This provides a peek through the window shades
+to one of our underlying strategies that has been so effective, which is
+of course to introduce a barb such as LSD or DMT or marijuana in a way
+that the negative effects are almost ignored in favor of the positive
+effects. *This marijuana will help my nausea, so what if I get a little
+paranoid?* The beauty of a barbed tool such a this is that it slides in
+easily, but is nearly impossible to pull out.
+
+Your patient is young, he thinks himself smart. He is part of the crowd
+who looks down his nose at prescription medication, which he sees as
+part of the corporate machine designed to poison him. This is why I
+think he'll be likely to try something like pot if a friend offers it. I
+mean, hell, it's legal in half the country now, maybe all you need to do
+is to get him on a road trip with his buddies? However you do it, make
+it seem like an "organic" experience; marijuana grows in nature, so how
+could it be bad? His own God even said that he has been given "every
+plant for food?" These lukewarm Christians can't be tempted into trying
+these things in the same way as the others, who still fall for the
+original trick: that their "eyes will be opened" so that they'll be like
+the Enemy.
+
+When and if you are able to get this hook into the lad, a few things
+will happen. First, you will have *direct access* to him. No longer will
+you be forced to whisper so subtly to him, you can have a conversation
+with him and control parts of his senses almost directly. With
+marijuana, that direct connection is a little unstable, compared to the
+high speed internet that we can ride on with some of the stronger drugs.
+There exists a small handful of drugs that allow us almost unlimited
+control of the lucky patient for a few minutes at a time. A few minutes
+might seem like a trifle, but in those few minutes he's in *our world*,
+where time is ours to meld how we see fit.
+
+But nevertheless, I don't need to explain to you why this is such a
+great tactic. We practically overran America in the 1960's when these
+things came into the mainstream, but at that time there was still a
+stigma, which would have prevented your patient, if he lived then, from
+indulging. With the help of one type of drug, we conquered Europe in the
+1940's, and used that Austrian saint as our lever. Indeed, this tactic
+will make you feel like Archimedes once you see how well it works! An
+extremely popular podcaster in America has been a great advocate for
+these drugs as of late. He's one of the leading voices that young men
+*really* listen to, so of course we had our top demons on him like stink
+on pigs. When we can influence these celebrities our reach can be
+compounded a thousand-fold.
+
+In addition to the first rate access to patient that you'll be able to
+gain with these substances coursing through your patient's veins,
+numerous secondary effects can also work to our advantage.
+
+First of all, many of these drugs will make your man plain lazy --
+sloth. Let him spend his life laying around and you'll be sure to make
+his displease the enemy. Next, you can fill him with incredible amounts
+of fear as he drifts from his world into ours. Of course, try not to
+make him afraid the first few times; get him hooked before the sugar
+turns to vingar.
+
+You may be happy to learn that humans share a most miserable trait with
+us: that inability to be satisfied (after you win your first soul,
+you'll know what I'm talking about.) If you give them x amount of a
+drug, they will eventually need x + 1 to get the same level of arousal,
+and then x + 2, and so on. This is a beauty because they will never be
+satisfied with anything on this earth. As they try to chase the elusive
+high that first hooked them, they become more and more focused on
+*self*. The more they focus inward, the easier our job becomes. The
+worship of *self* is the same as the worship of our Great Father Below.
+
+Get him here, Mugwort, and you'll be well on your way.

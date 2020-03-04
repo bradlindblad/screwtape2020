@@ -1,5 +1,7 @@
 #! /bin/bash
 
+find -type f -name '*backup*' -delete
+
 Rscript -e 'rmarkdown::render("README.Rmd")'
 
 pandoc -s -o book/final_book.docx src/*.md
