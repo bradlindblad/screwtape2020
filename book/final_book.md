@@ -151,28 +151,73 @@ apps to create better health for himself, and he is reading scholarly
 articles in his spare time on his phone to further his career, which in
 turn helps him support his family.
 
+Obviously. we need to encourage this behavior at all costs. Whenever
+your patient creates a distinction between himself and those close to
+him, he invites the opportunity for our greatest sin to enter his heart:
+Pride.
+
+If your patient glances over at someone in the pew and sees them
+scrolling through a program that he deems *less than*, that's perfect.
+Not only will the installation of Pride distance him from the Enemy (He
+really detests it!), the bloody fool doesn't even know that he's
+deceiving himself. He rationalizes his screen time because he views it
+as constructive.
+
 You see mugwort, these rationalizations that the humans are so fond of
-are among the silliest behaviors our enemy puts up with. Whether your
+are among the silliest behaviors our Enemy puts up with. Whether your
 patient detaches himself from his family due to a seemingly positive
 distraction rather than an Inane distraction, The point is that he is
 distracted.
 
-A secondary benefit of the patients constant smart phone research is the
-gradual breakdown of his own reason. Instead of logically thinking from
-first principles, the patient read articles written by people that have
-regurgitated ideas written by people that have heard ideas from our
-souls in our university systems. It really is a game of telephone Afton
-originating from our very own talking points.
+Now, regarding your report on his current church. I say "current"
+because we need to encourage him to shop around for a new church as
+often as possible. This church hopping works to our advantage in two
+ways. First, it transforms our patient's view of the church from a
+community into a commodity. As you know, these Christians are
+increasingly hard to reach when they enmesh with one another, forming an
+impenetrable web of life.
 
-All of this is to say that you must create an inseparable bond between
-the patient and his phone and any other similar devices.
+It's much easier for a soldier to pick off another lone soldier in
+no-man's-land, than it is for one to snipe an entire charging battalion
+of men. So when we prevent these people from assimilating deeply into
+one church body, it is easier for you and I to uproot them from the
+sand.
 
-I’m very pleased to hear your description of the flaccid church he’s
-been attending lately.One of our boys has been working on that churches
-lead pastor for more than a decade, And it’s evident that he’s had a
-breakthrough. one way we measure this is by Counting the times a pastor
+Next, we can easily pull the wandering sould closer to our breast by
+confusing him with the different denominations that man has established.
+If your patient is dissatisfied with his church, more than likely from a
+personal disagreement with a church member or sermon, you can point his
+attention to how "all these so-and-so's are all the same," thus
+producing a mark on the heads of everyone in that church. Therafter, you
+can truly confuse the man on his theology by instigating this pettiness
+towards these churches. Eventually, he will run out of denominations to
+alienate himself from and will have no other choice but to come into our
+arms!
 
-This, my friend, is how we do it. We go over there, and get it.
+It doesn't always work that smooth, but you get the picture. Remind me
+to tell you about how we further confuse the humans with the
+translations of their Bible.
+
+Back to his current church. I pinged human resources and found the
+tempter working on his current pastor. Now, although I just told you to
+have your man shop around, I think we need to keep him where he is for
+now, as I see some opportunities on the horizon.
+
+This other tempter has put in a solid decade on this pastor and it
+appears to be paying off. Recall my previous letter expounding on the
+utmost importance of screentime. This pastor is no stranger to it, and
+the fellow spends much of his time watching sermons by what he views as
+"big time" preachers -- the one's we're so fond of. These pastors don't
+become big time in the World by preaching the Truth about us or our
+Enemy; far from it. Our fellow's pastor has been slowly integrating the
+theology of these prosperity teachers into his own lessons; probably
+without awareness.
+
+Less teaching on repentence an our Enemy, and more talk of *self*. This
+vein of teaching is obviously straight from our playbook, so keep him at
+his church for now, Stalin willing.
+
+Talk soon,
 
 Screwtape | Executive Tempter\
 Hell.org
@@ -191,76 +236,91 @@ some time now. Excellent! I'm proud of you. In fact, I brought you up in
 a meeting at corporate last week. We were discussing additions to our
 young professionals networking program, and I touted you, Mugwort, as a
 worthy addition to the group. It's a great program for building your
-career -- and a fast track to an lower management role. Would you rather
+career -- and a fast track to a lower management role. Would you rather
 spend eternity whispering, suggesting, begging these filthy creatures to
 sink down into our miry pit, or would you rather call the shots at
 corporate with me? strategizing and building the future of the
 Underworld? Down here, my scaly apprentice, the muck is always blacker.
 
-Now I've come across some research that points to more opportunities
-opening up for us on earth. One of our greatest ancillary weapons since
-VG Day (Victory in the Garden) has been *pharmakeia*, the cutting of
-roots -- drugs as the humans say. Recently, the humans have went from
-demonizing (ha) psychedelics -- our most useful drug -- to praising it;
-even referring to it as *medicine*.
+I've come across some research that points to more opportunities opening
+up for us on earth. One of our greatest ancillary weapons since VG Day
+(Victory in the Garden) has been *pharmakeia*, the cutting of roots --
+drugs as the humans say. Recently, the humans have went from demonizing
+psychedelics -- our most useful drug -- to praising it; even referring
+to it as *medicine*. Hahaha.
 
-You see, ever since the second great war, science has been largely
-compromised on earth. As soon as the military funnelled untold millions
-into the university system to support the war, science was no longer
-Newton, or Pastuer, or Pascal, it was bought -- a commodity if you will.
-Science had a taste of the wine, the sturporous drunkenness, and her
-eyes were filled with purple and scarlet.
+You may rightly wonder why the humans have changed their tune on
+something they have universally shunned for so long. It started after
+the second great war when science was largely compromised on earth. As
+soon as the military funnelled untold millions into the university
+system to support the war, science was no longer Newton, or Pastuer, or
+Pascal, it was a commodity; bought and sold like politicians. Science
+and scientists had a taste of the wine, the sturporous drunkenness, and
+their eyes were filled with purple and scarlet.
 
-As such, we've been able to bribe the researchers and scientists to find
-some positive uses for these drugs to treat certain ailments, like
+Since then, we've been able to bribe the researchers and scientists to
+find some positive uses for these drugs to treat certain ailments, like
 anxiety and depression. This provides a peek through the window shades
 to one of our underlying strategies that has been so effective, which is
 of course to introduce a barb such as LSD or DMT or marijuana in a way
-that the negative effects are almost ignored in favor of the positive
+that the negative effects are initially ignored in favor of the positive
 effects. *This marijuana will help my nausea, so what if I get a little
 paranoid?* The beauty of a barbed tool such a this is that it slides in
-easily, but is nearly impossible to pull out.
+easily, but the nasty stuff stays with the patient long after they try
+to pry it out.
 
 Your patient is young, he thinks himself smart. He is part of the crowd
 who looks down his nose at prescription medication, which he sees as
 part of the corporate machine designed to poison him. This is why I
 think he'll be likely to try something like pot if a friend offers it. I
 mean, hell, it's legal in half the country now, maybe all you need to do
-is to get him on a road trip with his buddies? However you do it, make
-it seem like an "organic" experience; marijuana grows in nature, so how
-could it be bad? His own God even said that he has been given "every
-plant for food?" These lukewarm Christians can't be tempted into trying
-these things in the same way as the others, who still fall for the
-original trick: that their "eyes will be opened" so that they'll be like
-the Enemy.
+is wait for a road trip with his buddies and use the old peer pressure
+tricks.
+
+However you do it, make it seem like an "organic" experience; marijuana
+grows in nature, so how could it be bad? It's been used for 1000's of
+years in indigenous cultures; it's the wicked Victorian Europeans and
+American Puritans who wanted to hide the truth from the masses! His own
+God even said that he has been given "every plant for food?"
+
+These lukewarm Christians can't be tempted into trying these things in
+the same way as the others, who still fall for the original trick: that
+their "eyes will be opened" so that they'll be like the Enemy. But
+remember that your young patient *has a choice*. He has to choose these
+things, choose to disobey the Enemy in order to choose us. And when he
+hears the stories of healing from these drugs in hip ceremonies in South
+America or down the street, he'll make the right choice. We've already
+grabbed most of the internet celebrities your patient looks up to. As
+soon as he hears that podcaster so-and-so had his life changed by a
+"religuos experience" with a shaman, it will be hard for him to resist.
+He's young and niaive enough to not be able to discern the difference
+between experiencing our nauseating Enemy firsthand and experiencing you
+and I,and by the time he finds out, it will be too late for him anyway.
 
 When and if you are able to get this hook into the lad, a few things
 will happen. First, you will have *direct access* to him. No longer will
 you be forced to whisper so subtly to him, you can have a conversation
 with him and control parts of his senses almost directly. With
 marijuana, that direct connection is a little unstable, compared to the
-high speed internet that we can ride on with some of the stronger drugs.
-There exists a small handful of drugs that allow us almost unlimited
-control of the lucky patient for a few minutes at a time. A few minutes
-might seem like a trifle, but in those few minutes he's in *our world*,
-where time is ours to meld how we see fit.
+high speed connection we enjoy with some of the stronger drugs. There
+exists a small handful of these that allow us almost unlimited control
+of the lucky patient for a few minutes at a time. A few minutes might
+seem like a trifle, but in those few minutes he's in *our world*, where
+time is ours to meld how we see fit. While he's in this state we can see
+his entire past, therefore it is easy for us to dig up some relevant
+nugget of repressed memory, spin it around a bit, and make it seem like
+the patient had a "breakthrough" -- a good word to get him used to, by
+the way.
 
-But nevertheless, I don't need to explain to you why this is such a
-great tactic. We practically overran America in the 1960's when these
-things came into the mainstream, but at that time there was still a
-stigma, which would have prevented your patient, if he lived then, from
-indulging. With the help of one type of drug, we conquered Europe in the
-1940's, and used that Austrian saint as our lever. Indeed, this tactic
-will make you feel like Archimedes once you see how well it works! An
-extremely popular podcaster in America has been a great advocate for
-these drugs as of late. He's one of the leading voices that young men
-*really* listen to, so of course we had our top demons on him like stink
-on pigs. When we can influence these celebrities our reach can be
-compounded a thousand-fold.
+The other thing is that you can have a bit of fun with him. Scare him,
+find his greatest fear and make him experience it over and over again.
+Give him a taste of what death is like. Once he steps through that
+portal, the laws of time and space don't apply in that space you share
+with him. Some veteran tempters view this as their version of school
+recess that they enjoyed as young spirits. Live a little, Mugwort!
 
-In addition to the first rate access to patient that you'll be able to
-gain with these substances coursing through your patient's veins,
-numerous secondary effects can also work to our advantage.
+But wait, there's more! Numerous secondary effects can also work to our
+advantage.
 
 First of all, many of these drugs will make your man plain lazy --
 sloth. Let him spend his life laying around and you'll be sure to make
@@ -279,4 +339,4 @@ high that first hooked them, they become more and more focused on
 *self*. The more they focus inward, the easier our job becomes. The
 worship of *self* is the same as the worship of our Great Father Below.
 
-Get him here, Mugwort, and you'll be well on your way.
+Get him to try it, Mugwort, and you'll be well on your way.
