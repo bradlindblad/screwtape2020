@@ -1,6 +1,7 @@
 -   [Preface](#preface)
 -   [Chapter 1](#chapter-1)
 -   [Chapter 2](#chapter-2)
+-   [Chapter 3](#chapter-3)
 -   [Chapter 5](#chapter-5)
 
 Preface
@@ -218,6 +219,95 @@ vein of teaching is obviously straight from our playbook, so keep him at
 his church for now, Stalin willing.
 
 Talk soon,
+
+Screwtape | Executive Tempter\
+Hell.org
+
+Chapter 3
+=========
+
+FROM: Screwtape \[mailto: screwball@hell.org\]\
+TO: Mugwort `<muggy_as@hell.org>`\
+SUBJECT: RE:RE: xxxxxxxxxxxxx
+
+Since the college faculty, in their infinite evil, seemingly cannot
+teach you anything useful, I'll do their job for them.
+
+You asked about suggesting your patient try out another religion
+entirely distinct from his current one. At first glance, this may appear
+to be a valid tack, but in this case, it would be a waste of your time.
+In decaded past, before the people of the world were connected by our
+screens and the internet, a young girl in Kansas hadn't the foggiest
+idea what a girl in China worshipped, or what holy book a boy in Africa
+would regard. So when this Kansas girl grew up and went to college, she
+had context at all when introduced to buddhism by some girl she meets in
+chemistry class. With no preconceived notions on what buddhism is, it
+was entirely possible for a tempter to suggest that her parents and
+pastor had "kept her in the dark" about this "true" religion.
+
+In addition, the only source of information she would have about
+buddhism would be her friend's words and maybe an article in a dusty
+encyclopedia. You see, the internet has both helped and hurt us as
+tempters. These cases of naive-turned-convert are increasingly rare, but
+not unheard-of.
+
+Your patient is a product of the internet age. He has been told of the
+other religions his entire life, especially by his pastor. In his puny
+little mind, buddhism already equates to *us*. Now I'll tell you what
+you should do instead.
+
+The trick is to get your patient *comfortable*. Get him cozy, get him
+lacksadaisacal, get him happy with his place in the world, and happy in
+his relationship to our Enemy. You must at all costs, keep him from
+reading Paul's warning to him; convince him it's OK to be static in his
+relationship to the Enemy. Remind him that he went to Sunday school, was
+baptized, that he randomly thows a five dollar bill in the offering --
+he's checking all the boxes he's required to. At least, all the boxes he
+sees his friends checking.
+
+While it may seem like you're batting for the other team for years by
+doing this, it willpay off. As we've discussed, we have a whole division
+that's been making great progress on the pastors in this country. Sooner
+or later, your cozy patient's pastor may turn to us (and there has been
+good evidence that he's headed that way.) As long as your patient is
+kept comfy, he'll turn as well.
+
+Why rock the boat? So what if there is less and less Jesus and more and
+more "community" in the weekly sermon? Wouldn't Jesus encourage that?
+Before he knows it, there will be no Jesus, and he's slid down into our
+morass.
+
+If your cozy Christian continues down this path we're trotting him down,
+we can eventually turn him completely, and here's why. These "mere"
+concessions the patient makes for his faith have an additive effect. By
+this I mean that each concession he makes builds on the previous, and
+each sucessive concession becomes easier than the last to take.
+
+We exploit a defect that the Enemy carelessly left in the humans when he
+designed them. You see, when a human rises in the morning their minds
+reset to a degree. Since we spirits cannot sleep, it's hard to imagine
+what it's like, but apparently it's a glorious thing that the Enemy
+ruthlessly held back from us. The human has a certain amount of
+willpower to use up throughout the day. Each task consumes a certain
+amount of willpower, and willpower is sapped when a human does something
+selfish, over eats, or skips a workout. After the human does something
+like this, willpower leaks out and the rest of the human's day snowballs
+with more selfishness, until he recharges the next night (damn that
+sleep!)
+
+The human spends his life in the same manner that he spends his day (a
+fractal property...keep your patient away from mathematics at all
+costs!). You can exploit this by making small cuts into your patient's
+faith, if you've kept him comfy long enough. If he doesn't speak up when
+his church slowly turns away from the Enemy, he will be much more
+susceptible to our tactics: first he skips church occassionally, then he
+starts to harbor contempt for those that go when he doesn't. then he
+stops going all together. Before long he's snowballed into a loyal
+warlock!
+
+I think you should adjust your strategy accordingly, and adopt this more
+gradual strategy. After all, humans are living longer, and the longer
+they live, the more time we have to work on them.
 
 Screwtape | Executive Tempter\
 Hell.org

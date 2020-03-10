@@ -28,8 +28,9 @@ Statistics
 | 0.5\_Preface.md |          334| second |
 | 1.md            |          806| first  |
 | 2.md            |          734| first  |
+| 3.md            |          796| first  |
 | 5.md            |         1212| first  |
 
 |  Final.Word.Count|
 |-----------------:|
-|              3086|
+|              3882|
