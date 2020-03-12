@@ -2,6 +2,7 @@
 -   [Chapter 1](#chapter-1)
 -   [Chapter 2](#chapter-2)
 -   [Chapter 3](#chapter-3)
+-   [Chapter 4](#chapter-4)
 -   [Chapter 5](#chapter-5)
 
 Preface
@@ -308,6 +309,94 @@ warlock!
 I think you should adjust your strategy accordingly, and adopt this more
 gradual strategy. After all, humans are living longer, and the longer
 they live, the more time we have to work on them.
+
+Screwtape | Executive Tempter\
+Hell.org
+
+Chapter 4
+=========
+
+FROM: Screwtape \[mailto: screwball@hell.org\]\
+TO: Mugwort `<muggy_as@hell.org>`\
+SUBJECT: RE:RE: xxxxxxxxxxxxx
+
+You know, these screens really are unpredictable, and we still havnt
+been able to anticipate all the outcomes from their use with these
+cattle-like humans. But finally, we've caught a big break! These last
+months I was worried our screen weren't reaching your patient, but my
+fears have apparently been unfounded.
+
+The ultimate goal of these tactics and devices like screens are to bring
+our patient into various states where he is most likely to stay away
+from our natural Enemy. Despair is among the most effective of the
+states that we can lead them into and your man has crossed that
+threshold brilliantly.
+
+As you know from your orientation program, Hell.org has legions of
+departments, many of them siloed off from each other. As part of that
+new coporate collaboration initiative that none of us were excited
+about, some of these departments have been teaming up for knowledge
+transfer, as the consultants called it.
+
+As a result of this, the climate change department and our screens
+department have been working tirelessly to expand the environmentalism
+work that's been stagnant since the 1970's. Not only did they up the
+ante by rebranding environmentalism with the more serious tag, "climate
+change", they've added the term into the current basket of untouchables
+like Darwinism, moral reletavism, etc.
+
+Now I'll pre-emptively answer the question you're sure to ask: yes,
+Mugwort, even though the Enemy orders his humans to be good stewards to
+nature, we can and have perverted this command. We cannot create
+anything; no new feelings, no new sensations. But we can pervert aspects
+of this world the Enemy has meant for good, to serve our purposes.
+
+Case-in-point: while we should be indifferent or even apprehensive about
+humans *actually* taking care of their planet, we should encourage, by
+all means, the support of this climate change movement. For one thing,
+when the humans think of saving the world as a whole, they entirely miss
+the trees over their heads. Keeping them focused on the *movement*,
+rather than nature outside their front door, is among the most
+hilariously hypocritical things we tempters get to watch. Nature turns
+into an abstract "thing", an ephemeral idea, rather than a collection of
+carbon, smells, sounds and life that ultimately points to *him*.
+
+Our Enemy put his fingerprints all over nature. A human born on an
+island who never hears His message would still know Him from his
+handiword all around. The fibonacci spiral in the conch shell, the
+movement and pace of the tides, the stars in the sky and the seasons for
+everything under the life-giving sun, perfectly placed to sustain life
+and illuminate His face.
+
+The human enthralled in stopping climate change doesn't notice this
+because nature has been reduced to a boogyman -- something that they
+angered enough to kill them all.
+
+The point is, do what you can to prevent your patient from going on
+walks. Whenever he sees a beautiful sunset, redirect him to seeth over
+the thoughtless oil companies that are one spill away from destroying
+it. Don't render him able to enjoy these things; only to think of these
+wonderful things disappearing.
+
+You've noted that your patient has began to take climate change pretty
+seriously. Wunderbar. The more he watches videos and speeches that
+confirm his position, the more entrenched he'll become. You also noted
+that he has become more anxious as of late. To be sure, this is most
+likely from his interest in the topics at-hand.
+
+The beautiful thing about the climate change angle is the scope of the
+problem seems huge, impossible to fathom, so it leads these fools into
+Despair, which is the state we want to keep them in indefinitely.
+
+When a human is flooded with Despair, they display incredible distrust
+in the Enemy. While in this state, they are incapable of feeling joy,
+that most disgusting of human emotions. For some reason, the Enemy
+wishes these beings to experience joy every day of their petty, short
+lives. You can see how a cancerous mess of despair can help us in our
+efforts tremendously.
+
+Keep up the pressure in this area, and you'll make something of yourself
+yet.
 
 Screwtape | Executive Tempter\
 Hell.org

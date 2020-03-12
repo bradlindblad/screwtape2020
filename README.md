@@ -29,8 +29,9 @@ Statistics
 | 1.md            |          806| first  |
 | 2.md            |          734| first  |
 | 3.md            |          796| first  |
+| 4.md            |          712| first  |
 | 5.md            |         1212| first  |
 
 |  Final.Word.Count|
 |-----------------:|
-|              3882|
+|              4594|
